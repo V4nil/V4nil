@@ -8,9 +8,8 @@ Ich war in diesen Sommerferien in Italien und versuchte dort zu lernen Wasserski
 ## Was habe ich gelernt?
 
 Ich habe gelernt wie man mit wasserski die hinter ienem Boot hinterhergezogen werden auf wasser zu fahren.
-## Beschreibung
 
-✍️ Verwenden Sie drei verschiedene Medien, um zu zeigen, was Sie gelernt haben. Zum Beispiel:
+## Beschreibung
 
 Bei der Sportart Wasserski wird die ausführende Person auf Skiern, die Schneeskiern ähneln, stehend über eine Wasseroberfläche gezogen. 
 Der Antrieb erfolgt üblicherweise von einem Motorboot oder durch einen Wasserskilift über eine Wasserskileine mit einem Haltegriff, der auch Hantel genannt wird. 
@@ -21,16 +20,15 @@ so dass die Übenden zum kurzzeitigen Ausruhen nach einer Einheit neben dem Boot
 dieas sieht dann ca so aus:
 ![Waterski](https://user-images.githubusercontent.com/110892649/184822507-db46e5c1-4bce-41f6-86c3-c18c99270da4.jpg)
 
-![fett](http://www.reddit.com/r/gifs/comments/3otlq1/i_try_just_some_fun/)
+![giphy](https://user-images.githubusercontent.com/110892649/184824519-7abf526e-5f06-40c1-b54c-f8c738e74663.gif)
+
 
 ## Verifikation
 
-✍️ Erklären Sie kurz und bündig, inwiefern die von Ihnen verwendeten Medien zeigen, was Sie gelernt haben.
+Ich habe grundsätzlich beschrieben und aufgezeigt wasich errreicht bzw gelernt habe in den Sommerferien.
 
 # Reflektion zum Arbeitsprozess
 
-👍 Überlegen Sie sich jeweils etwas, was gut an Ihrer Arbeit lief; 
+Ich denke es lief gut dass ich nicht aufgegeben habe, 
+aber ich hätte mir definitiv auch mehr konzentrieren können indem ich früher aufgestanden wäre.
 
-👎 und etwas, was nicht gut lief.
-
-**VBV**: ✍️ Formulieren Sie davon ausgehend einen *handelbaren* Verbesserungsvorschlag.
